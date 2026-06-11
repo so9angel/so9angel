@@ -6,4 +6,4 @@
   
   be free to int ! ㅤ ㅤ   c+h VERY appreciated :D :D
 
-im ces soirev im very cute and kind <3
+me ces soirev me 17 y.o. me like YAOI😍
