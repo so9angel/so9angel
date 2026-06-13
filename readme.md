@@ -1,6 +1,6 @@
 <div id="header" align="center">
 
- <img src="https://iimg.su/s/11/go8J6GFxK40525G8kfba1fAHobHUuhJTLZW0dlnwN.png" width=90% height=90%>
+ <img src="https://iimg.su/s/11/go8J6GFxK40525G8kfba1fAHobHUuhJTLZW0dlnwN.png" width=70% height=70%>
 
 ${\text{\color{#fce8c7} ʚ ♡ ɞ  }}$
   
