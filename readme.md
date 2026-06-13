@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=so9angel&label=yaoilings_♡&color=f3ffc1"></p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=so9angel&label=yaoilings_♡&color=f9dd9e"></p>
 
 <div id="header" align="center">
  
