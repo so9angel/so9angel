@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
  
- <img src="https://iimg.su/s/11/go8J6GFxK40525G8kfba1fAHobHUuhJTLZW0dlnwN.png" width=70% height=70%>
+ <img src="https://i.ibb.co/mrCycpYD/2026-06-12-000630042-Photoroom.png" width=60% height=60%>
 
 ${\text{\color{#fce8c7} ʚ ♡ ɞ  }}$
   
@@ -14,3 +14,4 @@ ${\text{\color{#7b74cb} me ces soirev me 17 y.o. me like YAOI ㅤ ๋࣭ ㅤ ˖ 
 
 ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  <sub>${\text{\color{#7b74cb} img cr @jugve jkm on twt  }}$</sub>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313uyvel2y56kiyexrb7f2g3snku&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=dcdd88&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
