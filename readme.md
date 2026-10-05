@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
  
- <img src="https://i.ibb.co/mrCycpYD/2026-06-12-000630042-Photoroom.png" width=60% height=60%>
+ <img src="https://allwebs.ru/images/2026/10/04/a90115f13349e15a5bac96df4e20051a.png" width=60% height=60%>
 
 ${\text{\color{#fce8c7} ʚ ♡ ɞ  }}$
   
